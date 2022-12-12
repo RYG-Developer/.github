@@ -1,5 +1,5 @@
-## Hi there 👋
+# We Are Legion
 
 <!--
-# We Are Legion
+
 -->
