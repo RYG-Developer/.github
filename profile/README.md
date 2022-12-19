@@ -2,8 +2,7 @@
 # RYG developer team
 
 ## Stay Safe
-
-![](https://media.tenor.com/V7OXD2MJ_RQAAAAd/eula-genshin-impact.gif)
+![](https://media.tenor.com/diAEW9fikHoAAAAM/eula.gif)
 
 ## Remember no
 ![](https://media.tenor.com/wMFOzCKEr-kAAAAd/suisei-skill-issue.gif)
